@@ -4,7 +4,7 @@
 
 ## Connect with me 💬
 
-[![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "Thisuri Abeywardana")](https://www.linkedin.com/in/thisuri-abeywardana-81ab401a4) [![@anushka_wije](https://img.icons8.com/color/48/000000/behance.png "Thisuri Abeywardana")](https://www.behance.net/thisuriabeywar) 
+[![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "Thisuri Abeywardana")](https://www.linkedin.com/in/thisuri-abeywardana-81ab401a4) [![@anushka_wije](https://img.icons8.com/color/48/000000/behance.png "Thisuri Abeywardana")](https://www.behance.net/thisuriabeywardana) 
 
 
 ## My Tech Stack 🚀 
